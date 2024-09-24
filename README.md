@@ -1,2 +1,2 @@
 # mohneesh.com
-🌴 my personal website
+🌴 My personal website
